@@ -4,7 +4,7 @@ A passionate software developer with focus in FinTech and B2B SaaS. Currently Bu
 
 🌟 I’m working on a few really interesting ideas around fintech **To provide hazzle-free electronic payment solutions**
 <br> 
-📫 Reach me via Gmail **me.juniorfredrick@gmail.com** ⚡ Fun fact **I like to play snooker while drinking mocktails 🙃**
+📫 Reach me via Gmail **me.juniorfredrick@gmail.com** ⚡ Fun fact: **I like to play snooker while drinking mocktails 🙃**
 
 
 
